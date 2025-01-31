@@ -1,4 +1,4 @@
-# How to Get 700 Spins in Coin Master?** (2025 Guide)
+# How to Get 700 Spins in Coin Master? (2025 Guide)
 
 Are you looking for a way to get more spins in **Coin Master**? You’re not alone! Players all around the world are always searching for ways to maximize their spin count and boost their gameplay. The more spins you have, the more chances you get to spin the **Coin Master Wheel**, collect coins, and unlock new cards in the game. The best part? We’re offering a **FREE 700 Spins** to help you get started and make your journey in Coin Master even more exciting!
 
